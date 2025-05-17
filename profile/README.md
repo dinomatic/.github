@@ -6,3 +6,7 @@
 |:-:|:-:|:-:|
 | [**Akurai** Sports Betting Theme](https://dinomatic.com/themes/akurai) | [**Kemoku** Sports Betting Plugin](https://dinomatic.com/plugins/kemoku) | [**Nonaki** Link Cloaking Plugin](https://dinomatic.com/plugins/nonaki) |
 | [**Spinoko** Casino Theme](https://dinomatic.com/themes/spinoko) | [**DinOdds** Betting Odds Plugin](https://dinomatic.com/plugins/DinOdds) | [**Hello Cookie** Cookie Notice Plugin](https://dinomatic.com/plugins/hello-cookie) |
+
+Check out the new [ **FXT** Forex Broker Affiliate Theme](https://dinomatic.com/themes/fxt) 🔥
+
+Available for custom development services ✨
